@@ -11,7 +11,7 @@ Les deux principaux challenges pour un scientifique, un sceptique ou un zététi
 
 **Le but n'est clairement pas de changer les croyances des participants, et il est beaucoup plus facile de cacher sa part scientifique que dire aux autres qui nous sommes réellement.**
 
-Donc, même quand on va dans un stage Tantra, on y va d'abord pour **soi**, il peut être bien de se préparer psychologiquement que lors des discussions informelles, ces différents sujets soient abordés, qu'ils seront considérés comme vrai par le groupe, et que la médecine classique et la science en général sera considéré comme quelque chose à éviter:
+Donc, même quand on va dans un stage Tantra, on y va d'abord pour **soi**. Il peut être bien de se préparer psychologiquement au fait que lors des discussions informelles, les sujets suivants soient abordés. Il se peut qu'ils seront considérés comme vrai par le groupe, et que la médecine classique et la science en général soient considérées comme quelque chose à éviter:
 
 1. Chamanisme
 2. Naturopathie
